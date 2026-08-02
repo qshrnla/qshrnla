@@ -1,1 +1,2 @@
-<a href="https://ibb.co/qFFL2dLc"><img src="https://i.ibb.co/prr6kx6M/Untitled16-20260506232329.png" alt="Untitled16-20260506232329" border="0"></a>
+<a href="https://ibb.co/gZ4HxBrY"><img src="https://i.ibb.co/jkJBS18t/Untitled45-20260802005739.png" alt="Untitled45-20260802005739" border="0"></a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝓬𝓻 , 𝓴𝓪𝔂𝔂__𝟎𝟏 𝓸𝓷 𝓹𝓲𝓷
