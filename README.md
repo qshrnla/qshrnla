@@ -1,1 +1,2 @@
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/9kgv0mTW/d265f17aa0d61b52a152880ad6988220.gif" alt="d265f17aa0d61b52a152880ad6988220" border="0"></a>
+
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/7tQHZnyw/b0d0246fafe2474ebb8698bf0e47f55c.gif" alt="b0d0246fafe2474ebb8698bf0e47f55c" border="0"></a>
